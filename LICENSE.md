@@ -1,4 +1,4 @@
-#  
+#  Experience math for brainrots like never before with smart math for brainrots Script, the #1 Script. Includes god mode and instant win for unbeatable
 
 
 
